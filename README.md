@@ -1,5 +1,5 @@
 ![alt text](vk_header_2.png "#standwithukraine")
-
+![alt text](giphy.webp "#standwithisrael")
 <!--
 **shcherban/shcherban** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
