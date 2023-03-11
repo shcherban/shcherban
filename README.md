@@ -1,4 +1,4 @@
-![alt text](vk_header_2.png "#standwithukraine")
+![alt text](1699275165881.jpg "#standwithukraine")
 
 ![alt text](giphy.webp "#standwithisrael")
 <!--
